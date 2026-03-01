@@ -20,7 +20,7 @@ Join my discord if you want to add something. [Discord](https://discord.gg/nyzDK
 3. [@pr3y](https://github.com/pr3y/Bruce/tree/main/sd_files)  
 4. [@personwithbeans](https://github.com/personwithbeans/Bruce-Key-Copier/tree/main)
 5. [@zqqqqx](https://github.com/zqqqqx)
-
+6. [@sadecemsi](https://github.com/sadecemsi/sadecemsi)
 # Don't be a dick a steal other people's property/work without giving credit.
 
 
