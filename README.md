@@ -21,6 +21,10 @@ Join my discord if you want to add something. [Discord](https://discord.gg/nyzDK
 4. [@personwithbeans](https://github.com/personwithbeans/Bruce-Key-Copier/tree/main)
 
 For their original files and contributions.
+
+# Don't be a dick a steal other people's property/work without giving credit.
+
+
 ## BTC Address: bc1q7evvm5gx5xrh3ssfxh0htwzr49tx64cwzl6vz0
 ⁶
 ## MXR Address: 88fGveAuw7DdMumere62oMhXGWqt56NMq9GfMStB9eP8fWcXFKVNPXuiQTHJdtRTqvExLhX5Xqw14MJM4pQmD1x2SApNp3g
