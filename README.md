@@ -19,8 +19,7 @@ Join my discord if you want to add something. [Discord](https://discord.gg/nyzDK
 2. [@UberGuidoZ](https://github.com/UberGuidoZ)  
 3. [@pr3y](https://github.com/pr3y/Bruce/tree/main/sd_files)  
 4. [@personwithbeans](https://github.com/personwithbeans/Bruce-Key-Copier/tree/main)
-
-For their original files and contributions.
+5. [@zqqqqx](https://github.com/zqqqqx)
 
 # Don't be a dick a steal other people's property/work without giving credit.
 
